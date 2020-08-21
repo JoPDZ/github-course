@@ -11,5 +11,3 @@ Want's more? Coffe's Welcome.
 Add info here!!!!
 
 Donate button
-
-This little baby is the most beautiful thing in the entire world
